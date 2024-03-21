@@ -24,7 +24,7 @@
 </div><br/>
 
 
-Diariamente me apaixonando cada vez pelo mundo da tecnologia e buscando aprender cada vez mais sobre esse grande universo tecnológico 🚀
+Diariamente me apaixonando cada vez mais pelo mundo da tecnologia e buscando aprender cada vez mais sobre esse grande universo tecnológico 🚀
 
 <div style="display: inline_block" align="center"><br/>
     <h1>Contate-me</h1>
